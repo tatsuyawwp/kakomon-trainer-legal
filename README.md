@@ -1,0 +1,1 @@
+# kakomon-trainer-legal
