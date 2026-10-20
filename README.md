@@ -60,4 +60,4 @@
 
 【提供元 / お問い合わせ先】
 合同会社SNAPE&Co.
-メールアドレス: tatsuya.watanabe.works@gmail.com
+メールアドレス: snapeandco.works@gmail.com
